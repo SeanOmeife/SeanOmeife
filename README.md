@@ -21,8 +21,5 @@
 🖥️ Java, Python, and web development collaborations.
 📹 Creative projects involving videography or content creation.
 
-📬 Reach Me
-✍️beacons.ai/callmenkem 
-
 ⚡ Fun Fact
 I can probably outpace you in a 10km run, then turn around and school you in Dark Souls.
